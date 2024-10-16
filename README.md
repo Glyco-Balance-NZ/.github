@@ -59,4 +59,8 @@
 <h3><strong>OFFICIAL WEBSITE=&gt;&gt;&nbsp;</strong><strong><a href="https://getdeal24x7.com/glyco-balance-nz-buy">https://getdeal24x7.com/glyco-balance-nz-buy</a></strong></h3>
 <p><strong>FACEBOOK=&gt;</strong></p>
 <p><strong><a href="https://www.facebook.com/GlycoBalanceNZ/">https://www.facebook.com/GlycoBalanceNZ/</a></strong></p>
-<h3>&nbsp;</h3>
+<p><strong>BLOGS=&gt;</strong></p>
+<p><strong><a href="https://sites.google.com/view/glyco-balance-nz/">https://sites.google.com/view/glyco-balance-nz/</a></strong></p>
+<p><strong><a href="https://glyco-balance-nz.company.site/">https://glyco-balance-nz.company.site/</a></strong></p>
+<p><strong><a href="https://glyco-balance-nz.webflow.io/">https://glyco-balance-nz.webflow.io/</a></strong></p>
+<p><strong><a href="https://glyco-balance-nz.jimdosite.com/">https://glyco-balance-nz.jimdosite.com/</a></strong></p>
